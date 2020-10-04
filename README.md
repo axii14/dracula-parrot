@@ -1,1 +1,1 @@
-Dracula stand no fucking chance
+Dracula stands no fucking chance
